@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **kavitkar.a@northeastern.edu**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XA2uJeevbBkZj8cBvEoV5iYT_EEcJnYM/view?usp=sharing](https://drive.google.com/file/d/1XA2uJeevbBkZj8cBvEoV5iYT_EEcJnYM/view?usp=sharing)
+- My LinkedIn: www.linkedin.com/in/aishwarya-kavitkar
 
 - ⚡ Fun fact **I'm a part time Aerialist**
 
